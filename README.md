@@ -57,8 +57,8 @@ The portfolio showcases my:
 **Praneeth Reddy**
 
 - GitHub: https://github.com/spraneethreddy06/
-- LinkedIn: https://www.linkedin.com/in/jayanth-reddy-034429330/
-- Email: gjayanthreddy69@gmail.com  
+- LinkedIn: [https://www.linkedin.com/in/jayanth-reddy-034429330/](https://www.linkedin.com/in/sudini-praneeth-reddy-48595340a?utm_source=share_via&utm_content=profile&utm_medium=member_android" target="_blank)
+- Email: spraneethreddychintu@gmail.com
 
 ---
 
